@@ -6,4 +6,4 @@ Please support me on GITHUB <3
 
 
 # Instagram-Login-Page-Clone
-MADE BY @visheshk27
+MADE BY @visheshk27 - TELEGRAM
