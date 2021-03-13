@@ -1,5 +1,6 @@
 JOIN TO SUPPORT :- https://t.me/crackingfactory
 Please support me on GITHUB <3
+and Follow our Telegram Channel for more contents
 
                    █▀▀ █▀█ ▄▀█ █▀▀ █▄▀ █ █▄░█ █▀▀   █▀▀ ▄▀█ █▀▀ ▀█▀ █▀█ █▀█ █▄█
                    █▄▄ █▀▄ █▀█ █▄▄ █░█ █ █░▀█ █▄█   █▀░ █▀█ █▄▄ ░█░ █▄█ █▀▄ ░█░
