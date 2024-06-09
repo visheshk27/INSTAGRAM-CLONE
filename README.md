@@ -7,4 +7,4 @@ and Follow our Telegram Channel for more contents
 
 
 # Instagram-Login-Page-Clone
-MADE BY @visheshk27 - TELEGRAM
+MADE BY @visheshk2741 - TELEGRAM
